@@ -1,4 +1,4 @@
-# 
+# smart CCleaner para PC scripts é o melhor CCleaner para PC scripts com limpeza de arquivos desnecessarios e limpeza de registro. Seguro, confiável e otimizado para máximo
 
 
 
